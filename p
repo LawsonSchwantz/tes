@@ -1,4 +1,4 @@
 Hobi saya adalah:
 - memancing
-- main game
+- Jadi pro player
 - bikin dosen marah
